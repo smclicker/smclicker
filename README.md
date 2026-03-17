@@ -19,7 +19,7 @@
    
    `    she/her ; · they/them  ㅤ࣭ ㅤׂ  !!    6teen yo , if u dont want to int w' me. So just ignore me !!! ( I respect your decision ) .
 
-   Im fine w' any ship, u respect me and I will respect u too !! 
+   Im fine w' any ship, u respect mime and I will respect yours too !! 
   
 
 ; ⋅    mostly afk/offtab, c + h freely! ; w2i ^_^ 
