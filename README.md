@@ -40,6 +40,3 @@
 ﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　
 
  . ݁₊ ⊹ . ݁˖ . ݁ this is the end :D 
-
-
- ![Image](https://github.com/user-attachments/assets/3bd6edba-ce06-4bee-9782-3ca35d117215)
